@@ -121,8 +121,8 @@ What started as a small experiment turned into a hands-on learning journey acros
 Electrical and Computer Engineering Undergraduate  
 The Open University of Sri Lanka
 
-📧 Email: kasunmahela@gmail.com  
-📱 WhatsApp: +94 XX XXX XXXX
+📧 Email: kasunmahela2020.am@gmail.com  
+📱 WhatsApp: +94 712 151 023
 
 ---
 
